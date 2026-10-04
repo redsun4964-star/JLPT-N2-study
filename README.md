@@ -1,1 +1,0 @@
-# JLPT-N2-study
